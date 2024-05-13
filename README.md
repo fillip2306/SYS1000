@@ -1,1 +1,0 @@
-Final exam result: A
